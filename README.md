@@ -8,4 +8,14 @@ Beyond selling floral products, Bloom Alexandria focuses on creating meaningful 
 
 The goal is to build a recognizable local brand that connects flowers with emotions while making the process of choosing, ordering, and delivering gifts more convenient.
 
-**Project Focus:** Business Positioning, Digital Marketing Strategy, E-commerce, Customer Experience, and Brand Differentiation.
+**Project Focus:** Business Positioning, Digital Marketing Strategy, E-commerce, Customer Experience, and Brand Differentiation.In
+
+Instructor: Moamen Elbadry
+Team Members:
+1)Abdelrahman Elfeky 
+2)Kirollos Salib
+3)Doaa Samir
+4)Ahmed Gamal
+5)Soha Sabry
+6)Shaimaa Shokry
+
