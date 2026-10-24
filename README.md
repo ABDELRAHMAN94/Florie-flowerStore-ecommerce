@@ -1,4 +1,4 @@
-# Bloom Alexandria – Omnichannel Flower & Gifting Business
+Florie – Omnichannel Flower & Gifting Business
 
 Florie is a local flower and gifting business concept in Alexandria, Egypt, combining the personal experience of a physical flower shop with the convenience of an online store.
 
