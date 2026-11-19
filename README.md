@@ -10,14 +10,15 @@ The goal is to build a recognizable local brand that connects flowers with emoti
 
 **Project Focus:** Business Positioning, Digital Marketing Strategy, E-commerce, Customer Experience, and Brand Differentiation.
 
-Instructor: Moamen Elbadry
-Team Members:
-1)Abdelrahman Elfeky : Team Leader, Market Analyst & Content visual Identity Creator 
-2)Kirollos Salib :Media Buyer / Content Creation
-3)Doaa Samir : Logo & Name Brand Creator & Video Script Writer 
-4)Ahmed Gamal: Video Editor & Market Analyst
-5)Soha Sabry :Content Calendar Oragnizor
-6)Shaimaa Shokry :Social Media Coordinator
+# Instructor: Moamen Elbadry
+
+# Team Members:
+**1)Abdelrahman Elfeky** : Team Leader, Market Analyst & Content visual Identity Creator 
+**2)Kirollos Salib**:Media Buyer / Content Creation
+**3)Doaa Samir** : Logo & Name Brand Creator & Video Script Writer 
+**4)Ahmed Gamal**: Video Editor & Market Analyst
+**5)Soha Sabry** :Content Calendar Oragnizor
+**6)Shaimaa Shokry** :Social Media Coordinator
 
 # Work Plan & Marketing Strategy
 
