@@ -12,12 +12,12 @@ The goal is to build a recognizable local brand that connects flowers with emoti
 
 Instructor: Moamen Elbadry
 Team Members:
-1)Abdelrahman Elfeky : Team Leader,Content Strategist & Market Analyst
+1)Abdelrahman Elfeky : Team Leader, Market Analyst & Content visual Identity Creator 
 2)Kirollos Salib :Media Buyer / Content Creation
-3)Doaa Samir : Graphic Designer
-4)Ahmed Gamal: Video Editor
-5)Soha Sabry :Social Media Coordinator
-6)Shaimaa Shokry :Graphic Designer
+3)Doaa Samir : Logo & Name Brand Creator & Video Script Writer 
+4)Ahmed Gamal: Video Editor & Market Analyst
+5)Soha Sabry :Content Calendar Oragnizor
+6)Shaimaa Shokry :Social Media Coordinator
 
 # Work Plan & Marketing Strategy
 
